@@ -1,4 +1,4 @@
-# 
+# Instantáneo WizTree complementos para Mac OS | Automático WizTree complementos para PC Windows. Con protección con contraseña y administrador de inicio — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
